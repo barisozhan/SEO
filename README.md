@@ -1,0 +1,2 @@
+# SEO
+Sınırların ötesini hedefle
